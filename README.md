@@ -1,4 +1,4 @@
-# Hi, I'm akaadityagupta 👋
+# Hi, I'm Aditya Gupta 👋
 
 > Crafting software, building things that matter, and learning something new every day.
 
